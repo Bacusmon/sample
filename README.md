@@ -1,11 +1,4 @@
 # sampleasdasdasdadasgawasf
-asdasdasdasd
-asjdhasdqwg
-asdeq3rasf 
-asawfds
 
-asgawgsajq w gasivas g
-a
-asaw as 
-asdasfasg
-asdfas g
+new file
+Github edits
